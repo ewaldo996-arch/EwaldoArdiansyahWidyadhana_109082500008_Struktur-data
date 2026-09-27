@@ -1,0 +1,1 @@
+# EwaldoArdiansyahWidyadhana_109082500008_Struktur-data
